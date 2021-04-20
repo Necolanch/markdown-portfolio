@@ -1,5 +1,5 @@
-* My wife
+* My wife 👰
 * Esports
-  *Video games
-* Sports
-* Chicken
+  *Video games 🎮
+* Sports 🏉
+* Chicken 🐔
