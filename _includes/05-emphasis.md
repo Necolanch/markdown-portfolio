@@ -1,1 +1,1 @@
-I have *just started* learning **HTML & CSS*.
+I have *just started* learning **HTML & CSS**.
